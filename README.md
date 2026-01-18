@@ -3,7 +3,7 @@
 <img src="https://artwork.neocities.org/photos/halloween/dark/house.gif"/>
 
  
-WELCOME
+WELCOME TO MY PAGE
 
 why dont you stay awhile and listen to some tunes
 
